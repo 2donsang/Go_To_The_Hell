@@ -1,9 +1,2 @@
-# Gotothehell
+# Welecome To Hell!
 지옥에 오신걸 환영합니다.
-
-안녕 
-
-심심하다.  
-
-퇴근하고 싶다.
- 
